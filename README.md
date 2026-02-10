@@ -7,4 +7,3 @@
 - 📫 How to reach me: kesavan180304@gmail.com
 - 😄 Pronouns:He/Him
 - ⚡ Fun fact:enjoy turning marketing ideas into data-driven insights.
--->
