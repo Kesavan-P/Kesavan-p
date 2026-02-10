@@ -1,5 +1,4 @@
-## Hi there 👋
-
+## Hii 👋i'm Kesavan P
 - 🔭 I’m currently working on analyzing ad engagement of Gen-Z across YouTube and Instagram.
 - 🌱 I’m currently learning digital marketing analytics, Excel, and basic data visualization.
 - 👯 I’m looking to collaborate on marketing analytics, social media campaigns, and case studies.
